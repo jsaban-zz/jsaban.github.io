@@ -1,2 +1,1 @@
-Josip Saban
-Lectures, MOOCs and blogs
+Josip Saban- lectures, MOOCs and blogs
